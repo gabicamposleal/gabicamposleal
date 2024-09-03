@@ -6,4 +6,4 @@
 📫 Como me encontrar ... EM CASA TRABALHO E ESCOLA 
 😄 Pronomes: ...GABIZINHA 
 ⚡ Curiosidade: ..GOSTO DE TRABALHER E SAIR 
-[GABIZINHA](https://media.tenor.com/Llwd5L_Ly6kAAAAM/so-gabriela-mulher.gif)
+![](https://media.tenor.com/Llwd5L_Ly6kAAAAM/so-gabriela-mulher.gif)
